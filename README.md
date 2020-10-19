@@ -2,7 +2,7 @@
 
 ## Support
 
-Please use Apple's App Store reviews to contact with me.
+Please use Apple's App Store feedback to contact with me.
 
 ## Privacy Policy
 
